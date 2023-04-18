@@ -15,6 +15,8 @@ free time, I enjoy playing music and traveling, as well as playing chess.
 
 Positive attitude - Proactive - Communicative - Easy learner - Team working - Leadership - Creative thinking - Passionate - Assertive - Empathic
 
+## Contact
+
 You can contact me via email:
 
 📫 abellagarciamiquel@gmail.com
